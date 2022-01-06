@@ -1,8 +1,16 @@
-![](https://i.gifer.com/IJ5Y.gif)
+![](https://experienciajoven.com/wp-content/uploads/2020/11/programacion_gamer_001.gif)
 
 
 
 ## Hola, soy Diego Andres, estudiante de tercer año de Ingeniería en Informática y Sistemas de la Universidad Rafael Landívar. 👋
+
+### Personal
+
+_Personal_
+:zap: Lo que escucho: **[Spotify](https://open.spotify.com/user/andresr-21?si=2c8c2e469dc2479d)**
+
+:zap: MI Twitter: **[Twitter](https://twitter.com/Dnndres)**
+
 
 <!--
 **Dandres2001/Dandres2001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
