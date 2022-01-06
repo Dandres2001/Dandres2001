@@ -1,4 +1,4 @@
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fexperienciajoven.com%2Fcarrera-de-programacion-de-videojuegos%2F&psig=AOvVaw1HKumCyMWZNDZV_S5g8Bw9&ust=1641531394921000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCJiRnJarnPUCFQAAAAAdAAAAABAD.gif)
+![](https://experienciajoven.com/wp-content/uploads/2020/11/programacion_gamer_001.gif)
 
 
 
