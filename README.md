@@ -1,7 +1,7 @@
 
 
 
-## Hola, soy Diego Andres, estudiante de tercer año de Ingeniería en Informática y Sistemas de la Universidad Rafael Landívar. :v:
+## Hola, soy Andres, estudiante de tercer año de Ingeniería en Informática y Sistemas de la Universidad Rafael Landívar. :v:
 
 
 
@@ -9,7 +9,7 @@ _Personal_
 
 :zap: Lo que escucho: **[Mi Spotify](https://open.spotify.com/user/andresr-21?si=2c8c2e469dc2479d)**
 
-:zap: Donde escribo cualquier cosa: **[Twitter](https://twitter.com/Dnndres)**
+:zap: Donde escribo cualquier cosa: **[Mi Twitter](https://twitter.com/Dnndres)**
 
 ![](https://experienciajoven.com/wp-content/uploads/2020/11/programacion_gamer_001.gif)
 
