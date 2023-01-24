@@ -1,7 +1,7 @@
 
 
 
-## Hola, soy Andres, estudiante de cuarto año de Ingeniería en Informática y Sistemas de la Universidad Rafael Landívar. :v:
+<!--## Hola, soy Andres, estudiante de cuarto año de Ingeniería en Informática y Sistemas de la Universidad Rafael Landívar. :v:
 
 ![](https://experienciajoven.com/wp-content/uploads/2020/11/programacion_gamer_001.gif)
 
